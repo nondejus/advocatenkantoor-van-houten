@@ -1,3 +1,3 @@
 # advocatenkantoor-van-houten
 
-de schizofrenederlandse advocaar
+de schizofrene advocaar
